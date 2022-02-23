@@ -1,1 +1,1 @@
-# My name is Soony Sharma
+# My name is Sonny Sharma
